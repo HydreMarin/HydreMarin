@@ -6,3 +6,5 @@ I like
 • video game (obviously)
 
 •[archery](<https://en.wikipedia.org/wiki/Archery>)
+
+•anime
