@@ -1,5 +1,5 @@
 ## Hello [world](<https://en.wikipedia.org/wiki/World>)! 🪐
-I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<https://fr.wikipedia.org/wiki/Minecraft>)   texture pack maker  
+I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<https://en.wikipedia.org/wiki/Minecraft>)   texture pack maker  
 ## my hobbys
 
 
@@ -7,6 +7,6 @@ I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<ht
 
 •[archery](<https://en.wikipedia.org/wiki/Archery>)
 
-•anime
+•[anime](<https://en.wikipedia.org/wiki/Anime>)
 
-•drawing
+•drawing 
