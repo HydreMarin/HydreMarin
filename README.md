@@ -9,4 +9,4 @@ I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<ht
 
 •[anime](<https://en.wikipedia.org/wiki/Anime>) 👺
 
-•drawing 🖊
+•[drawing](<https://en.wikipedia.org/wiki/Drawing>) 🖊
