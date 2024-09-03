@@ -6,7 +6,7 @@ I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<ht
 ## my hobbys
 
  
-• [video game](<https://en.wikipedia.org/wiki/Archery>)🎮 (obviously) 
+• [video game](<>)🎮 (obviously) 
 
 •[archery](<https://en.wikipedia.org/wiki/Archery>) 🏹
 
