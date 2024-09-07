@@ -14,4 +14,4 @@ I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<ht
 
 •[drawing](<https://en.wikipedia.org/wiki/Drawing>) 🖊
 
-•meme
+•meme🤣
