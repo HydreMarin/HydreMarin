@@ -17,7 +17,7 @@ I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<ht
 •meme🤣
 
 ## fun facts
-I  hate ![comic sans (2)(1)](https://github.com/user-attachments/assets/bc5ba6e4-d4bd-46b8-bdc0-5b4a2be0780e)
+I  hate   ![comic sans (2)(1)](https://github.com/user-attachments/assets/bc5ba6e4-d4bd-46b8-bdc0-5b4a2be0780e)
 
 
 
