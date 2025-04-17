@@ -1,5 +1,5 @@
 ## Hello [world](<https://en.wikipedia.org/wiki/World>)! 🪐
-I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 [minecraft](<https://en.wikipedia.org/wiki/Minecraft>)   texture pack maker
+I am a [french](<https://en.wikipedia.org/wiki/France>) 🇫🇷 shitposter
 
 
 
